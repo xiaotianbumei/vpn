@@ -17,3 +17,6 @@ Ostrich vpn  play商店搜索
 Lena vpn      play商店搜索
 
 Shark vpn app   play商店搜索
+
+大名鼎鼎的小地球仪vpn,https://www.xiaodiqiuyi.com/?src=youtebe&user=LRH520 
+邀请码：225603 邀请码注册的用户都可以获得6天60gb  不限速流量
